@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming & web development
 - 🌱 I’m currently learning front end development & python
 - 💞️ I’m looking to collaborate on projects
-- 📫 You can reach me at Dejuansmith308@Gmail.com
+- 📫 You can reach me at Dejuan.smith@live.focushope.edu
 - 😄 Pronouns: He,him,guy,dude
 - ⚡ Fun fact:I love learning & a peace of mind
 
